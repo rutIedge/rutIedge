@@ -9,7 +9,7 @@
 <div align="center">
 
   
-![](https://komarev.com/ghpvc/?username=rutiedge&style=plastic&label=clients&color=B26777&base=4563)
+![](https://komarev.com/ghpvc/?username=rutiedge&style=plastic&label=deaths&color=B26777&base=4563)
 
 </div>
 
@@ -19,7 +19,7 @@
 
 <div align="center">
 
-[**rentry**](https://rentry.co/jethrowest)ㅤㅤ[pinterest](https://pin.it/4c5RDBjHB)ㅤㅤ[**pronouns**](https://pronouns.cc/@jethro)
+[**𝓻entry**](https://rentry.co/jethrowest)ㅤㅤ[𝓬ontact](https://jethro.atabook.org)ㅤㅤ[**𝓹ronouns**](https://pronouns.cc/@jethro)
 </div> 
 ㅤ
 
